@@ -1,3 +1,6 @@
+![Baby yoda meme saying LOL Hey, it's me again](https://user-images.githubusercontent.com/10384315/172408950-5f60dc26-1a22-41b3-b163-2448872feec6.png)
+
+
 ## 10 things to know about working with @ashygee
 
 1. **My professional mantra: Approach with curiosity and kindness** What we do is incredibly complex and sometimes there can be a multitude of solutions. But questions are free, having clarity is vital, and approaching with openness and kindness can bring down most defenses so we can do our best work together. 
